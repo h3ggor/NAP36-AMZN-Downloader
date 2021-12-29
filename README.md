@@ -29,7 +29,7 @@
 - 👯 Sharing is caring
   
 
-- ⚡ CDM IS NOT INCLUDED BUY it from wvfuck@cyberfiends.net ⚡ 
+- ⚡ CDM IS NOT INCLUDED BUY it from wvfuck@protonmail.com ⚡ 
 
   
 <br>
